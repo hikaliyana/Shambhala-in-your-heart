@@ -1,3 +1,3 @@
 # Shambhala-in-your-heart
 
-this is an epic song
+We ALL made mistakes and it's OK
